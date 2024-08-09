@@ -76,3 +76,15 @@ Finished the lamp, made a table, a ladder, bricked a feature wall, made another 
 ![alt text](image-33.png)
 ![alt text](image-34.png)
 ![alt text](image-35.png)
+
+## Hour 7:
+
+Made a lamp, couch and two shoes
+
+### Progress:
+
+![alt text](image-36.png)
+![alt text](image-37.png)
+![alt text](image-38.png)
+![alt text](image-39.png)
+![alt text](image-40.png)

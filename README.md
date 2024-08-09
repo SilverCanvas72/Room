@@ -35,3 +35,18 @@ Made 2 doores, window frame, ladder and finished blocking room
 ![alt text](image-13.png)
 ![alt text](image-14.png)
 ![alt text](image-15.png)
+
+## Hour 4:
+
+Made more shelves, a pot plant, alot of books, a set of drawers and a seat.
+
+### Progress:
+
+![alt text](image-16.png)
+![alt text](image-17.png)
+![alt text](image-18.png)
+![alt text](image-19.png)
+![alt text](image-20.png)
+![alt text](image-21.png)
+![alt text](image-22.png)
+

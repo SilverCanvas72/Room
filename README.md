@@ -99,3 +99,17 @@ Made pillows, open book, pen, paper and a plant
 ![alt text](image-43.png)
 ![alt text](image-44.png)
 ![alt text](image-45.png)
+
+## Hour 9:
+
+Made string lights, stack of books, vinyl records and their holder and started a guitar.
+
+### Progress:
+
+![alt text](image-46.png)
+![alt text](image-47.png)
+![alt text](image-48.png)
+![alt text](image-49.png)
+![alt text](image-51.png)
+![alt text](image-52.png)
+![alt text](image-53.png)

@@ -50,3 +50,17 @@ Made more shelves, a pot plant, alot of books, a set of drawers and a seat.
 ![alt text](image-21.png)
 ![alt text](image-22.png)
 
+## Hour 5:
+
+Made a shelf, globe, bed, pillows and started a lamp
+
+### Progress:
+
+![alt text](image-23.png)
+![alt text](image-24.png)
+![alt text](image-25.png)
+![alt text](image-26.png)
+![alt text](image-27.png)
+![alt text](image-28.png)
+
+

@@ -88,3 +88,14 @@ Made a lamp, couch and two shoes
 ![alt text](image-38.png)
 ![alt text](image-39.png)
 ![alt text](image-40.png)
+
+## Hour 8:
+
+Made pillows, open book, pen, paper and a plant
+
+### Progress:
+![alt text](image-41.png)
+![alt text](image-42.png)
+![alt text](image-43.png)
+![alt text](image-44.png)
+![alt text](image-45.png)

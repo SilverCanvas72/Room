@@ -63,4 +63,16 @@ Made a shelf, globe, bed, pillows and started a lamp
 ![alt text](image-27.png)
 ![alt text](image-28.png)
 
+## Hour 6:
 
+Finished the lamp, made a table, a ladder, bricked a feature wall, made another lamp and picture frame and photo.
+
+### Progress:
+
+![alt text](image-29.png)
+![alt text](image-30.png)
+![alt text](image-31.png)
+![alt text](image-32.png)
+![alt text](image-33.png)
+![alt text](image-34.png)
+![alt text](image-35.png)

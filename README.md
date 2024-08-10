@@ -148,3 +148,18 @@ Finished the lamp and started ading lighting to the room, coloured the fairy lig
 ![alt text](image-66.png)
 ![alt text](image-67.png)
 ![alt text](image-68.png)
+
+
+## Hour 13:
+
+Worked on an office chair, I picked one with an organic shape that I thought would fit the vibe. It is almost done but it still looks a bit off.
+
+### Progress:
+
+![alt text](image-69.png)
+![alt text](image-70.png)
+![alt text](image-71.png)
+![alt text](image-72.png)
+![alt text](image-73.png)
+![alt text](image-74.png)
+![alt text](image-75.png)

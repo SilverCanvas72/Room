@@ -136,4 +136,15 @@ Made lots of little elements including plant, sticky notes, paper, pin board. bo
 ![alt text](image-60.png)
 ![alt text](image-61.png)
 ![alt text](image-62.png)
-![alt text](image-63.png)S
+![alt text](image-63.png)
+
+## Hour 12:
+
+Finished the lamp and started ading lighting to the room, coloured the fairy lights. I also relized one of the plants is missing so I will try and get that back later.
+
+### Progress:
+![alt text](image-64.png)
+![alt text](image-65.png)
+![alt text](image-66.png)
+![alt text](image-67.png)
+![alt text](image-68.png)

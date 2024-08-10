@@ -125,3 +125,15 @@ Finishd guitar, made a holder for it and then started a plant
 ![alt text](image-58.png)
 ![alt text](image-56.png)
 ![alt text](image-57.png)
+
+## Hour 11:
+
+Made lots of little elements including plant, sticky notes, paper, pin board. bock stack, monitor and lamp.
+
+### Progress:
+
+![alt text](image-59.png)
+![alt text](image-60.png)
+![alt text](image-61.png)
+![alt text](image-62.png)
+![alt text](image-63.png)S

@@ -113,3 +113,15 @@ Made string lights, stack of books, vinyl records and their holder and started a
 ![alt text](image-51.png)
 ![alt text](image-52.png)
 ![alt text](image-53.png)
+
+## Hour 10:
+
+Finishd guitar, made a holder for it and then started a plant
+
+### Progress:
+
+![alt text](image-54.png)
+![alt text](image-55.png)
+![alt text](image-58.png)
+![alt text](image-56.png)
+![alt text](image-57.png)

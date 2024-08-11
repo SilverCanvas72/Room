@@ -194,3 +194,18 @@ Made alot of little things, vases, candles, a mug and started making the rubik's
 ![alt text](image-90.png)
 ![alt text](image-91.png)
 ![alt text](image-92.png)
+
+## Hour 16:
+
+Made lots of rubik's cubes for the shelves and made shoes to put in the bottom shelf.
+LINK TO .blend FILE:
+https://drive.google.com/file/d/1PHw9N8jgx8hE9j4ZOEclmSJnzTHccqoA/view?usp=drive_link 
+
+### Progress:
+
+![alt text](image-93.png)
+![alt text](image-94.png)
+![alt text](image-95.png)
+![alt text](image-96.png)
+![alt text](image-97.png)
+![alt text](image-98.png)

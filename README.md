@@ -163,3 +163,18 @@ Worked on an office chair, I picked one with an organic shape that I thought wou
 ![alt text](image-73.png)
 ![alt text](image-74.png)
 ![alt text](image-75.png)
+
+## Hour 14:
+
+Made a keyboard, mouse and controller.
+
+### Progress:
+
+![alt text](image-76.png)
+![alt text](image-77.png)
+![alt text](image-78.png)
+![alt text](image-79.png)
+![alt text](image-80.png)
+![alt text](image-81.png)
+![alt text](image-82.png)
+![alt text](image-83.png)

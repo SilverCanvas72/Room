@@ -178,3 +178,19 @@ Made a keyboard, mouse and controller.
 ![alt text](image-81.png)
 ![alt text](image-82.png)
 ![alt text](image-83.png)
+
+## Hour 15:
+
+Made alot of little things, vases, candles, a mug and started making the rubik's cubes for the shelves.
+
+### Progress:
+
+![alt text](image-84.png)
+![alt text](image-85.png)
+![alt text](image-86.png)
+![alt text](image-87.png)
+![alt text](image-88.png)
+![alt text](image-89.png)
+![alt text](image-90.png)
+![alt text](image-91.png)
+![alt text](image-92.png)

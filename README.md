@@ -209,3 +209,14 @@ https://drive.google.com/file/d/1PHw9N8jgx8hE9j4ZOEclmSJnzTHccqoA/view?usp=drive
 ![alt text](image-96.png)
 ![alt text](image-97.png)
 ![alt text](image-98.png)
+
+## Hour 17:
+
+Spent most of the hour decimating each individual objects so I can get the file size down. This was very time consuming and annoying but ended up being worth it. I went from around 110mb to 58mb. Then I just atarted adding more stuff to shelves.
+
+## Progress:
+![alt text](image-99.png)
+![alt text](image-102.png)
+![alt text](image-103.png)
+![alt text](image-100.png)
+![alt text](image-101.png)

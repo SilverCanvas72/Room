@@ -220,3 +220,15 @@ Spent most of the hour decimating each individual objects so I can get the file 
 ![alt text](image-103.png)
 ![alt text](image-100.png)
 ![alt text](image-101.png)
+
+## Hour 18:
+
+Made a new light, crashed blender, started adding materials
+
+## Progress:
+![alt text](image-104.png)
+![alt text](image-105.png)
+![alt text](image-106.png)
+![alt text](image-107.png)
+![alt text](image-108.png)
+![alt text](image-109.png)

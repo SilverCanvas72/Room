@@ -257,3 +257,14 @@ Added lots of simple materials this session, did most of the desk area and alot 
 ![alt text](image-120.png)
 ![alt text](image-121.png)
 ![alt text](image-122.png)
+
+## Hour 21:
+Added materials to corenr under the bed, did all the rubiks cubes.
+
+## Progress:
+
+![alt text](image-123.png)
+![alt text](image-124.png)
+![alt text](image-125.png)
+![alt text](image-126.png)
+![alt text](image-127.png)

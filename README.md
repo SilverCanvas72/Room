@@ -245,3 +245,15 @@ Fixed some odd shadowing when rendering, fixed desk space, added materials to ch
 ![alt text](image-114.png)
 ![alt text](image-115.png)
 ![alt text](image-116.png)
+
+## Hour 20:
+Added lots of simple materials this session, did most of the desk area and alot of books
+
+## Progress:
+
+![alt text](image-117.png)
+![alt text](image-118.png)
+![alt text](image-119.png)
+![alt text](image-120.png)
+![alt text](image-121.png)
+![alt text](image-122.png)

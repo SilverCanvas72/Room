@@ -268,3 +268,16 @@ Added materials to corenr under the bed, did all the rubiks cubes.
 ![alt text](image-125.png)
 ![alt text](image-126.png)
 ![alt text](image-127.png)
+
+## Hour 22: 
+
+Kept adding materials, did bed couces, maps, books and shoes also added accent walls.
+
+## Progress:
+![alt text](image-128.png)
+![alt text](image-129.png)
+![alt text](image-130.png)
+![alt text](image-131.png)
+![alt text](image-132.png)
+![alt text](image-133.png)
+![alt text](image-134.png)

@@ -281,3 +281,18 @@ Kept adding materials, did bed couces, maps, books and shoes also added accent w
 ![alt text](image-132.png)
 ![alt text](image-133.png)
 ![alt text](image-134.png)
+
+## Hour 23:
+
+Finished off adding materials to all the current objects in the room I think. 
+
+## Progress:
+
+![alt text](image-135.png)
+![alt text](image-136.png)
+![alt text](<image (2).png>)
+![alt text](image-137.png)
+![alt text](image-138.png)
+![alt text](image-139.png)
+![alt text](image-140.png)
+![alt text](image-141.png)

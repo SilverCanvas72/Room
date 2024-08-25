@@ -1,5 +1,13 @@
 # Room
+## Sketchfab:
+https://skfb.ly/p7ZRv
 
+![image](https://github.com/user-attachments/assets/743076a6-92a9-4b00-8a57-424f34fbdceb)
+## Video Walkthrough:
+
+[![Video Title](https://img.youtube.com/vi/yNbkk8RdE3k/0.jpg)](https://www.youtube.com/watch?v=yNbkk8RdE3k)
+<details>
+  <summary>See Progress Here:</summary>
 ## Hour 1:
 
 Did a sketch of what I want to make to come back and refrence
@@ -296,3 +304,5 @@ Finished off adding materials to all the current objects in the room I think.
 ![alt text](image-139.png)
 ![alt text](image-140.png)
 ![alt text](image-141.png)
+
+</details>

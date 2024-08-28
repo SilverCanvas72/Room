@@ -1,4 +1,6 @@
 # Room
+Wanted to create a intersting/house room design. It was interesting turning something that I drew/imagined into a physical 3d model in which things would actually line up which I didn't expect having to overcome.
+
 ## Sketchfab:
 https://skfb.ly/p7ZRv
 
